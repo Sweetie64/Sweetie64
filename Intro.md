@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rei
-- 👀 I’m interested in digital art, anime, vocaloids, gay porn and video games
+- 👀 I’m interested in digital art, anime, vocaloidsand video games
 - 🌱 I’m currently learning some CS in uni 
 - 💞️ I’m looking to get some help for uni work about cs
 - 📫 How to reach me レイ#3131 on discord
